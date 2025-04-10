@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nft marketplace
 - 📫 How to reach me Telegram: @Overthinker2009 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: i am straight
+- ⚡ Fun fact: i am steve
 
 <!---
 overthinker2009/overthinker2009 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
